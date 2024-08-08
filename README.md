@@ -5,4 +5,4 @@
  How to reach me: [s.m.sakthivelofficial@gmail.com]
  Pronouns: He/Him
  Fun fact: I’m passionate about applying AI to solve real-world problems and enjoy diving into complex datasets to uncover hidden insights.
-
+ My Linkedin: <a href="https://www.linkedin.com/in/smsakthivel/">LINKEDIN</a>
